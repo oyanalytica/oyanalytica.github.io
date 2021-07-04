@@ -1,1 +1,0 @@
-# oyanalytica.github.io
